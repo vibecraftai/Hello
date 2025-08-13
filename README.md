@@ -1,7 +1,7 @@
 Our story is written in many accents and time zones.
 Designers in Europe brainstorming with developers in Africa.
 Strategists in the Middle East exchanging ideas with creatives in Asia.
-Borders don’t limit us — they inspire us.
+Borders don’t limit us they inspire us.
 
 Every project begins as a spark from one corner of the world and grows into something extraordinary when shaped by many hands, minds, and cultures.
 
